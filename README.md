@@ -1,0 +1,2 @@
+- Oi, meu mome é @Gustavoaluno220
+- Estou aprendendo sobre linguagens de programas
